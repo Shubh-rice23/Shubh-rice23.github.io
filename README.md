@@ -7,3 +7,5 @@ Chassis Positining System - Autonomous system installed on Ship to Shore Cranes 
 
 
 ![ricecampus-beautifulsunset2022-2920x2299](https://github.com/Shubh-rice23/Shubh-rice23.github.io/assets/166761999/1c43978f-6d37-423f-bc48-4c182566af1d)
+
+![IMG_5506 2](https://github.com/Shubh-rice23/Shubh-rice23.github.io/assets/166761999/e467c7af-55a6-45ab-803d-4ddfeff22ea1)
